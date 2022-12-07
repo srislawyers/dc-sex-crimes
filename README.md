@@ -1,2 +1,3 @@
 # dc-sex-crimes
 https://srislawyer.com/criminal-law-dc-firm-federal-sex-crimes-washington-dc-lawyer/
+Holding a decent criminal law office who handles cases in Washington DC is fundamental to attempt to forestall a prison term or a fine. You can definitely relax, help is round the corner! Address our lawyers at the criminal law office shielding cases in Washington DC and keep up with your quietness till we help you. Nobody in D.C. can prevent you from calling a Criminal Regulation DC Legal counselor. Anything the seriousness of your case is, recruiting a Criminal Regulation DC lawyer from a rumored criminal law office Washington DC will constantly be for your potential benefit.
